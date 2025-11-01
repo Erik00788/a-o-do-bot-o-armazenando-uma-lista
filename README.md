@@ -1,0 +1,1 @@
+# a-o-do-bot-o-armazenando-uma-lista
